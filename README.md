@@ -7,3 +7,4 @@ prominent
 fleet of trucks
 /ˌrez.ɪˈden.ʃəl/
 /ɪnˈstrʌkt/
+/dɪkˈteɪt/
