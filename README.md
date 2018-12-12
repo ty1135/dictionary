@@ -12,3 +12,4 @@ fleet of trucks
 /ˈliː.vər.ɪdʒ/
 /ˈprev.əl.ənt/ 
 /ˈkɒp.ər/
+/ˌeɪ.sɪˈmet.rɪk/
