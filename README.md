@@ -10,3 +10,4 @@ fleet of trucks
 /dɪkˈteɪt/
 /delv/
 /ˈliː.vər.ɪdʒ/
+/ˈprev.əl.ənt/ 
