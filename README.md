@@ -11,3 +11,4 @@ fleet of trucks
 /delv/
 /ˈliː.vər.ɪdʒ/
 /ˈprev.əl.ənt/ 
+/ˈkɒp.ər/
