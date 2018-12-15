@@ -16,3 +16,4 @@ fleet of trucks
 /ɡeɪdʒ/ 
 /rɪˈzɔːt/
 /ˈhek.sə.ɡən/
+/ˈrɒm.bəs/ 
